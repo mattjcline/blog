@@ -4,4 +4,8 @@ title: Master of None Season 2 is a Masterwork
 categories: tv art
 ---
 
-Aziz made some goddamn beautiful art, I'm reeling from watching season two of Master of None. Framing communication issues in a relationship within an ASL conversation was genius. I'll try not to spoil much but if you're so inclined you should watch this show.
+Aziz made some beautiful art, I'm still reeling from watching season two of Master of None. Situations in this season were Kafkaesque, I shuddered with discomfort at the truthfulness of it all. Cringe is good sometimes.
+
+I will hold off on more spoilers but if you're so inclined you should watch this show.
+
+Makes me want to go to Italy. _Alora_.
