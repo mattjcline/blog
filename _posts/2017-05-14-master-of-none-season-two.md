@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Master of None Season 2 is a Masterwork
+title: Masterwork of None
 categories: tv art
 ---
 
